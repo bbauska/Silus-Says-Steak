@@ -1,2 +1,2 @@
-# silus-said-steak
-1 million times. Silus has said the word 'steak' a million times. One hundred thousand to go and he'll be done.
+# Silus Says Steak
+Silus Gaming World has said 'Steak' 1 million 1 hondred thousand times. Starting Dec, 2024. Finishing Nov, 2025.  45 days, approximately 10 hours per date. Total 450 hours saying the word 'Steak'.
